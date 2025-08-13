@@ -1,1 +1,1 @@
-# LAB2_PROJETO1
+# LAB2_PROJETO1 / André Luís França Essinger
